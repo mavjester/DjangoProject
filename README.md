@@ -1,1 +1,1 @@
-Project include training Git
+Project include training Git WOW
